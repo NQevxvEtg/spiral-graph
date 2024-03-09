@@ -1,1 +1,1 @@
-![img](https://github.com/NQevxvEtg/compare-years/blob/main/image/BTCUSDchance.png)
+![img](https://github.com/NQevxvEtg/spiral-graph/blob/main/image/AMPL%20Polar.png)
